@@ -2,6 +2,8 @@
 An iTunes gift card is a prepaid card used to purchase products and services from the Apple ecosystem, primarily through the iTunes Store, App Store, and other Apple platforms. Here's a breakdown of key information about iTunes gift cards:
 What You Can Use It For
 
+<h2><a href="https://claimresources.xyz/giftcard.html/">LEARN MORE</a></h2>
+
     Music and Media:
         Purchase songs, albums, and playlists from the iTunes Store.
         Rent or buy movies and TV shows.
